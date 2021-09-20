@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Giáng My
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning Ho Chi Minh City Open University
+- 📫 How to reach me: https://www.facebook.com/quantamne
